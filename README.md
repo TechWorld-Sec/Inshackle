@@ -6,8 +6,6 @@
 ### Don't copy this code without giving me the credits ! Please read the License 
 Instagram hacks: Track unfollowers, Increase your followers, Download Stories, etc
 
-#### Download Hacking tools : https://denotech.in
-
 ### Features:
 #### Unfollow Tracker
 #### Increase Followers
